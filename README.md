@@ -23,6 +23,6 @@ After waking up from a coma, *Rick Grimes* discovers the world has been taken ov
 ### Best Seasons
 Seasons 1-5 are peak television. After that it has ups and downs but still worth watching if you're invested in the characters.
 
-**My Score: 8.5/10**
+**My Score: Absolute Cinema**
 
 [More about The Walking Dead](https://walkingdead.fandom.com/wiki/The_Walking_Dead_Wiki)
