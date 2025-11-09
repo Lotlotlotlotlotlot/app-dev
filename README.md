@@ -25,4 +25,4 @@ Seasons 1-5 are peak television. After that it has ups and downs but still worth
 
 **My Score: 8.5/10**
 
-[More about The Walking Dead](https://www.amc.com/shows/the-walking-dead)
+[More about The Walking Dead]([https://www.amc.com/shows/the-walking-dead](https://walkingdead.fandom.com/wiki/The_Walking_Dead_Wiki))
